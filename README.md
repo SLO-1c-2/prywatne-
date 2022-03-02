@@ -1,2 +1,0 @@
-# prywatne-
-prosze nie wchodzic 
